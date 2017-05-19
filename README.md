@@ -2,3 +2,4 @@
 
 
 letailleur.emilie@gmail.com
+s.pelletier@gmail.com
